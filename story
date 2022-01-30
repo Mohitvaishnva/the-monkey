@@ -1,0 +1,1 @@
+once there was a monkey or a crocodile the crocodile is hungery they meet the monkey the monkey the crocodile make a good friend
